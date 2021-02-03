@@ -13,3 +13,5 @@ now here's a little ditty about bats
 what kind of bat you ask? 
 Fruit bats!
 I dno't know anything about fruit bats but I'm sure they fly and are mammals
+
+so this is about cats - will it over ride my things about dogs?? or just add to it????
